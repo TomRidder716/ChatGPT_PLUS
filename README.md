@@ -18,4 +18,4 @@
 
 ## 如果需要的话直接扫码添加本人微信（ysfybbxf） 即可
 
-![微信二维码](https://github.com/HuSiNi/ChatGPT-Plus/blob/main/00050-1981508610.png)
+![微信二维码](https://github.com/TomRidder716/ChatGPT_PLUS/blob/main/00050-1981508610.png)
